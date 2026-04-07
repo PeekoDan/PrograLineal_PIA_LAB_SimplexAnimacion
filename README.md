@@ -1,0 +1,1 @@
+# PrograLineal_PIA_LAB_SimplexAnimacion
